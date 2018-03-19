@@ -1,1 +1,0 @@
-# thankimotesti.github.io
